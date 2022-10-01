@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **hardhikkumar9@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1yKIM_F-6rN8ycpKzRDOrRLO8CQcEzuvk/view?usp=sharing](https://drive.google.com/file/d/1yKIM_F-6rN8ycpKzRDOrRLO8CQcEzuvk/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1yKIM_F-6rN8ycpKzRDOrRLO8CQcEzuvk/view?usp=sharing](https://drive.google.com/file/d/1bLFTNEZZpxfJnZ7nAdl8vCElhzxknVAE/view?usp=sharing)
 
 - ⚡ Fun fact **I am Funny**
 
