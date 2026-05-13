@@ -15,7 +15,7 @@
 - 🎯 Seeking a **graduate or entry-level analytics role** in the UK
 - 🏛️ **Postgraduate Ambassador** at the University of Birmingham
 - 📫 Reach me at **hardhikkumar9@gmail.com**
-- 📄 View my resume: [Click Here](https://drive.google.com/file/d/1bLFTNEZZpxfJnZ7nAdl8vCElhzxknVAE/view?usp=sharing)
+- 📄 View my resume: [Click Here](https://drive.google.com/file/d/1dGfFCcEsyILxGm2ZBhZ3b_wtk4bFEvU1/view?usp=sharing)
 - ⚡ Fun fact: **I am Funny**
 
 ---
